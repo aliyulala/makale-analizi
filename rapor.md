@@ -1,3 +1,4 @@
+[Akademik_Makale_Inceleme_Raporu_Aniche_2018-part10(final).pdf](https://github.com/user-attachments/files/34956092/Akademik_Makale_Inceleme_Raporu_Aniche_2018-part10.final.pdf)
 [Akademik_Makale_Inceleme_Raporu_Aniche_2018-part9.pdf](https://github.com/user-attachments/files/34915082/Akademik_Makale_Inceleme_Raporu_Aniche_2018-part9.pdf)
 [Akademik_Makale_Inceleme_Raporu_Aniche_2018-part8.pdf](https://github.com/user-attachments/files/34881731/Akademik_Makale_Inceleme_Raporu_Aniche_2018-part8.pdf)
 [Akademik_Makale_Inceleme_Raporu_Aniche_2018-part7.pdf](https://github.com/user-attachments/files/34860386/Akademik_Makale_Inceleme_Raporu_Aniche_2018-part7.pdf)
